@@ -1,2 +1,2 @@
-CSCI 3308 014 06
+Project Team Members:
 
