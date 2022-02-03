@@ -1,2 +1,1 @@
-Project Team Members: Hayden
-
+Project Team Members: Hayden, Jakob
