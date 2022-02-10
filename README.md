@@ -1,1 +1,1 @@
-Project Team Members: Hayden, Jakob, Yifeng, Eve
+Project Team Members: Hayden, Jakob, Yifeng
